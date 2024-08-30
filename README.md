@@ -4,7 +4,7 @@
 
 🌱 I’m currently learning java 
 
-💬 Please ask me about java and ... sex!
+💬 Please ask me about java and ... [sex](https://cn.pornhub.com/users/simple_qwq)!
 
 >喜欢撅人 特别是YangLine和bug（bushi
 
