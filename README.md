@@ -1,6 +1,6 @@
 ## Hi there 👋
 ### 爱玩minecraft 在学jvav
-喜欢撅人
+喜欢撅人 特别是YangLine（bushi
 
 <!--
 **xingyuan1023/xingyuan1023** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
