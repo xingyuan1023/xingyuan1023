@@ -1,6 +1,6 @@
 
 ## Hi there 👋
-### I love playing Minecraft! You can find me at [Namemc](https://namemc.com/profile/xingyuan1023.1)
+### I love playing Minecraft! You can find me at [Namemc.com](https://namemc.com/profile/xingyuan1023.1)
 
 🌱 I’m currently learning java 
 
