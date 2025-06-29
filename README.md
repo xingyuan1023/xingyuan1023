@@ -12,7 +12,7 @@
 
 ## 📫 How to reach me: [QQ](http://wpa.qq.com/msgrd?v=3&uin=3109224712&site=qq&menu=yes) or [Discord](https://discord.com/users/973842895230623744)
 
-# Yes,that is who i am ———— A fool
+# Yes,that is who i am ———— ~*A fool~*
 ## Man! What can I say?
 
 <!--
